@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI and all things tech
 - 🌱 I’m currently developing on laravel (PHP)
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me whatsapp +2349040521448
+- 📫 How to reach me whatsapp +2349071140264
                       email    amraheem5@gmail.com
 - ✨ here are some of my link:
 - Twitter: https://twitter.com/amraheemstan5
